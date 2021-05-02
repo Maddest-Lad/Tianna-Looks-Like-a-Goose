@@ -8,3 +8,4 @@ Although one would not suspect it from a cursoury glance, Tianna is in fact a Go
 * Who else but a Goose will just randomly attack people, it's simply instict 
 
 ![](https://cdn.discordapp.com/attachments/838560590032797707/838560630888726528/image_3.jpg)
+![](https://cdn.discordapp.com/attachments/838560590032797707/838560634840940554/image_1.jpg)
