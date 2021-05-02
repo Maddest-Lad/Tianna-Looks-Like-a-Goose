@@ -7,4 +7,4 @@ Although one would not suspect it from a cursoury glance, Tianna is in fact a Go
 * No neck beside a goose's is long enough to shotgun whipped cream
 * Who else but a Goose will just randomly attack people, it's simply instict 
 
-![Image_1](/images_1.jpg)
+![](https://cdn.discordapp.com/attachments/838560590032797707/838560630888726528/image_3.jpg)
