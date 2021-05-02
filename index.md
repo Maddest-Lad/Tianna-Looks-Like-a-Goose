@@ -1,4 +1,3 @@
-# Tianna Looks Like a Goose
 Although one would not suspect it from a cursory glance, Tianna is in fact a Goose. 
 
 ### Reasons Why Tianna is a Goose
