@@ -1,4 +1,4 @@
-Although one would not suspect it from a cursory glance, Tianna may in fact a Goose. 
+Although one would not suspect it from a cursory glance, Tianna may in fact be a Goose. 
 
 ### Reasons Why Tianna is a Goose
 * Her waving - who else but a goose in disguise would wave their ~~hands~~ wings so pathetically 
@@ -6,4 +6,4 @@ Although one would not suspect it from a cursory glance, Tianna may in fact a Go
 * No neck beside a goose's is long enough to shotgun whipped cream
 * Who else but a Goose will just randomly attack people, it's simply instict 
 
-![](https://cdn.discordapp.com/attachments/838560590032797707/838573594262896658/ImageForSite.PNG)
+![Proof](https://cdn.discordapp.com/attachments/838560590032797707/838573594262896658/ImageForSite.PNG)
